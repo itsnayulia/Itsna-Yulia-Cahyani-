@@ -1,0 +1,2 @@
+# Itsna-Yulia-Cahyani-
+TUGAS UTS SISTEM EMBEDDED
